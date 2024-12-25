@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning SEX
 - 💞️ I’m looking to collaborate on SEX
 - 📫 How to reach me: SEX
-- 😄 Pronouns: SEX
+- 😄 Pronouns: he/him/SEX
 - ⚡ Fun fact: SEX
 
 <!---
